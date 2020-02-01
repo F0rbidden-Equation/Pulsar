@@ -1,1 +1,1 @@
-![map-sdr](https://user-images.githubusercontent.com/59021489/73581064-4ad5fb80-4488-11ea-9c27-e7ec3d804911.jpg)
+![SRD-project](https://user-images.githubusercontent.com/59021489/73583190-24688e00-4491-11ea-8056-4d3dd088b2ae.jpg)
